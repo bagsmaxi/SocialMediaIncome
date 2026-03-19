@@ -16,13 +16,13 @@ By combining content creation, audience building, and token economics, this proj
 
 The project operates across several major social media platforms:
 
-YouTube — Monetization: ✅ Active
+YouTube : https://www.youtube.com/@cryptotenang — Monetization: ✅ Active
 
-X (Twitter) — Monetization: 🚧 In Progress
+X (Twitter): https://x.com/BagscoinSOL — Monetization: 🚧 In Progress
 
-Facebook Pro — Monetization: 🚧 In Progress
+Facebook Pro : https://www.facebook.com/share/14bqwJBdBDh/?mibextid=wwXIfr  — Monetization: 🚧 In Progress
 
-TikTok — Monetization: ✅ Active (Primary for traffic & digital product sales)
+TikTok : https://www.tiktok.com/@cryptotenang?_r=1&_t=ZS-94oagFAHnpo — Monetization: ✅ Active (Primary for traffic & digital product sales)
 
 💡 TikTok has already generated over $20,000 USD through digital product sales.
 
